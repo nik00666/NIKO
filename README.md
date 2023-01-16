@@ -1,2 +1,0 @@
-# NIKO
-NIKO NAUFAL
